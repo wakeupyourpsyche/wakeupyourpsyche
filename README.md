@@ -19,5 +19,5 @@
 
 <div align="center">
 
-[straw](https://passerbyboy.straw.page/) . [ata](https://pwnfected.atabook.org/)
+[straw](https://whatpoetsusedtoknow.straw.page/) . [ata](https://pwnfected.atabook.org/)
 
