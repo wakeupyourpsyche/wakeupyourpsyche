@@ -22,8 +22,10 @@
 [straw](https://wakeupyourpsyche.straw.page/) . [ata](https://wakeupyourpsyche.atabook.org/)
 
 
-<img width="125" height="125" alt="falkner" src="https://github.com/user-attachments/assets/0572fa66-40b6-4ff2-8ec0-e859ba9f19ed" />
+<img width="125" height="125" alt="toku" src="https://github.com/user-attachments/assets/6a3dd669-a66a-465e-910f-854de23cba18" />
 
 THE #TOKUKAMU N1 ENFORCER !!!
 
 old user : pwnfected
+
+<img width="500" height="500" alt="tokukamuuu" src=https://github.com/user-attachments/assets/cf8b03b7-cb13-445f-a4b4-b2e7566e96c1 />
