@@ -26,6 +26,9 @@
 
 THE #TOKUKAMU N1 ENFORCER !!!
 
+   <img width= "350" height="350" alt="teio" src="https://github.com/user-attachments/assets/0bfd5c05-c980-4707-a650-04eb6ee8c97e" />
+
+
 old user : pwnfected
 
 <img width="500" height="500" alt="tokukamuuu" src=https://github.com/user-attachments/assets/cf8b03b7-cb13-445f-a4b4-b2e7566e96c1 />
