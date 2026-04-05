@@ -21,12 +21,12 @@
 
 [straw](https://wakeupyourpsyche.straw.page/) . [ata](https://wakeupyourpsyche.atabook.org/)
 
+[prns](https://en.pronouns.page/@wakeupyourpsyche)
+
 
 <img width="125" height="125" alt="toku" src="https://github.com/user-attachments/assets/6a3dd669-a66a-465e-910f-854de23cba18" />
 
 THE #TOKUKAMU N1 ENFORCER !!!
-
-   <img width= "350" height="350" alt="teio" src="https://github.com/user-attachments/assets/0bfd5c05-c980-4707-a650-04eb6ee8c97e" />
 
 
 old user : pwnfected
