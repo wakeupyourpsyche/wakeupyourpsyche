@@ -2,7 +2,7 @@
 
   ![](https://komarev.com/ghpvc/?username=pwnfected&color=3DBA9B&style=plastic&label=lurkers&abbreviated=true)  
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&duration=3500&pause=500&color=F70000&center=true&width=435&lines=well+maybe+cupid+won't+miss%2C;maybe%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Goblin+One&duration=2000&pause=500&color=A90000&center=true&vCenter=true&multiline=true&width=435&height=70&lines=and+maybe+cupid+won't+miss;maybe%3F)](https://git.io/typing-svg)
 
 </div>
 
