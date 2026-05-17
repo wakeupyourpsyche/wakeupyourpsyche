@@ -28,7 +28,8 @@
 [prns](https://en.pronouns.page/@wakeupyourpsyche)
 
 
-<img width="125" height="125" alt="toku" src="https://github.com/user-attachments/assets/6a3dd669-a66a-465e-910f-854de23cba18" />
+<img width="125" height="125" alt="i love pete" src="https://github.com/user-attachments/assets/fb13b615-fb48-40bb-8ad3-d2c1190e7004" />
+
 
 THE #TOKUKAMU N1 ENFORCER !!!
 
