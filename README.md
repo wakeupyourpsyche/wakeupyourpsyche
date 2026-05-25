@@ -30,9 +30,10 @@
 
 <img width="125" height="125" alt="i love pete" src="https://github.com/user-attachments/assets/fb13b615-fb48-40bb-8ad3-d2c1190e7004" />
 
-
-THE #TOKUKAMU N1 ENFORCER !!!
-
+this is my man, i do not like to share
 
 
-<img width="500" height="500" alt="tokukamuuu" src=https://github.com/user-attachments/assets/cf8b03b7-cb13-445f-a4b4-b2e7566e96c1 />
+who is dat gng 🤣🤣
+
+
+<img width="500" height="350" alt="WHO IS THIS 2" src="https://github.com/user-attachments/assets/77c6d183-4a40-4f65-9f84-c7bebe27c20a" />
