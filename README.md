@@ -28,6 +28,8 @@
 [prns](https://en.pronouns.page/@wakeupyourpsyche)
 
 
+salem / nico
+
 <img width="125" height="125" alt="i love pete" src="https://github.com/user-attachments/assets/fb13b615-fb48-40bb-8ad3-d2c1190e7004" />
 
 this is my man, i do not like to share
