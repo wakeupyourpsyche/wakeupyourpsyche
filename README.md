@@ -26,6 +26,8 @@
 
 [straw](https://wakeupyourpsyche.straw.page/) . [ata](https://wakeupyourpsyche.atabook.org/)
 
+(im begging you go sign my ata)
+
 [prns](https://en.pronouns.page/@wakeupyourpsyche)
 
 
