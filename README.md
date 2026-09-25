@@ -16,6 +16,7 @@
 
 [𝗉𝗋𝗇𝗌](https://en.pronouns.page/@wakeupyourpsyche)ㅤㅤㅤㅤ夢ㅤㅤㅤㅤ[𝖺𝗍𝖺](https://wakeupyourpsyche.atabook.org/)
 
+[𝗍𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/becquerelium)
 
 𝗂 𝖼𝗁𝖺𝗇𝗀𝖾 𝗍𝗒𝗉𝗂𝗇𝗀 𝗊𝗎𝗂𝗋𝗄𝗌 𝖺 𝗅𝟢𝗍
 
