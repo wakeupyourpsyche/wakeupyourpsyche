@@ -1,10 +1,9 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=pwnfected&color=B536da&style=plastic&label=unfortunate&abbreviated=true)  
+  ![](https://komarev.com/ghpvc/?username=pwnfected&color=a3c5d1&style=plastic&label=unfortunate&abbreviated=true)  
 
 
-<img alt="erieri2" src="https://github.com/user-attachments/assets/2a5edf70-8694-482c-8eb5-1cc0f8846625" />
-
+<img alt="snowgrave" src="https://github.com/user-attachments/assets/2b249d07-7b2b-4f4e-9401-d127701ba6c8" />
 
 
 
