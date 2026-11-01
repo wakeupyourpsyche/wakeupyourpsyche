@@ -3,8 +3,6 @@
   ![](https://komarev.com/ghpvc/?username=pwnfected&color=a3c5d1&style=plastic&label=unfortunate&abbreviated=true)  
 
 
-<img alt="snowgrave" src="https://github.com/user-attachments/assets/2b249d07-7b2b-4f4e-9401-d127701ba6c8" />
-
 
 
 <div align="center">
