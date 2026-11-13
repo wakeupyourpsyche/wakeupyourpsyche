@@ -22,6 +22,6 @@
 
 <div align="center">
 
-<img alt="jane doe" src="https://github.com/user-attachments/assets/51eff772-1f3c-457c-b8d8-1a6537aaa5de" />
+<img alt="jane stamp" src="https://github.com/user-attachments/assets/57fa19a8-0353-4be6-8838-e73bd4df2c01" />
 
 
